@@ -1,1 +1,0 @@
-Github üzerinden kendi bloðumu oluþturmak için yaptýðým çalýþmalar.
